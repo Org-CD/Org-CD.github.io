@@ -3,4 +3,4 @@
 
 ### Upcoming Events
 - Meeting on Tuesday
-    - On the silver seats 
+    - The silver seats are our new meeting place
