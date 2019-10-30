@@ -5,4 +5,4 @@
 - Meeting on Tuesday
     - The silver seats are our new meeting place
     
-### [Terms and Condition](/TsAndCs)
+### [Terms and Conditions](/TsAndCs)
