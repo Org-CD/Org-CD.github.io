@@ -7,4 +7,4 @@
 <p>B. They must answer the three questions below correctly and truthfully.</p>
 <i>I.	Do you have any criminal records? Answer = No
 II. Do you like Minecraft? Answer = Yes
-II.	Are you currently part of any other organizations or services (e.g. Cushie Bung Service, C C Beans)? Answer = No</i>
+II.	Are you currently part of any other competititive organizations or services (e.g. Cushie Bung Service, C C Beans)? Answer = No</i>
