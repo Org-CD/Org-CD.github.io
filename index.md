@@ -1,3 +1,6 @@
+### Announcements
+- Just a reminder to check your [email](mail.google.com) for the O.C.D fundraising link.
+
 ### Recent Events
 
 ### Upcoming Events
