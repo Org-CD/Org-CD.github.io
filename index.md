@@ -1,6 +1,6 @@
 ### Announcements
 - **Chloe Steptoe and Sienna Robertson are now organization enemy #1**
-- Just a reminder to check your <u>[email](https://mail.google.com)</u> for the O.C.D fundraising link.
+- Just a reminder to check your [email](https://mail.google.com) for the O.C.D fundraising link.
 
 ### Recent Events
 
